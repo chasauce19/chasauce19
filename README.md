@@ -1,4 +1,4 @@
-# 💫 Hi, I'm Miel 👋:
+# 💫 Hi, I'm Miel 👋
 🌱 I’m currently learning new things<br>🪲 I can do debugging all-day<br>⚡ Energize me with carbonated drinks
 
 
